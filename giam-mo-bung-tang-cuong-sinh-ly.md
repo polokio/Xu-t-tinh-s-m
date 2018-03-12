@@ -1,4 +1,4 @@
-<h1>Giảm mở bụng cách tăng cường sinh lý hiệu quả cho nam giới</h1>
+<h1>Giảm mỡ bụng cách tăng cường sinh lý hiệu quả cho nam giới</h1>
 <p>Theo các nhà khoa học, nam giới bị béo phì, tích mỡ bụng có khả năng sinh sản cũng như sinh lý kém hơn người bình thường.</p>
 <p>Điều này không có nghĩa tất cả đàn ông mập đều yếu trong chuyện "yêu" tuy nhiên phần lớn giả định này là chính xác, đồng thời bụng cũng có kích thước tỉ lệ nghịch với cậu nhỏ. Tức cách <a href="http://dakhoatrungtruc.vn/6-meo-don-gian-giup-duong-vat-tang-kich-thuoc-dang-ke.html">tăng kích thước cậu nhỏ</a> nhanh nhất chính là giảm mỡ bụng.</p>
 <p>Vậy làm sao để giảm mỡ bụng? HÃY XEM NHỮNG BÍ QUYẾT DƯỚI ĐÂY!</p>
